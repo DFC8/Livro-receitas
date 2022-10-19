@@ -34,7 +34,7 @@
 #####                                                                    MONTAGEM
 
 1. Banhe os biscoitos no leite e faça camadas de creme branco, biscoito e creme preto, por último coloque as raspas de chocolate de sua preferência.
-2. Leve a geladeirapor quatro horas 
+2. Leve a geladeira por quatro horas. 
 
 
 
